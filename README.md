@@ -1,0 +1,2 @@
+# Crush-kita
+Oo na
